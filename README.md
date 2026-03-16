@@ -15,4 +15,4 @@ Discipline and data-driven decision-making are fundamental pillars of my approac
 ---
 
 **Connect**
-[LinkedIn](URL_TO_LINKEDIN) | [Email](mailto:YOUR_EMAIL) | [Portfolio](URL_TO_PORTFOLIO)
+[LinkedIn](https://www.linkedin.com/in/wrandow/) | [Email](mailto:wrandow.ramirez@hotmail.com) |
